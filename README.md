@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning CyberSecurity
 - 💞️ I’m looking to collaborate on CyberSecurity and other technologies
 - 📫 How to reach me https://www.linkedin.com/in/diana-young-dede
-- 😄 Pronouns: She
+- 😄 Pronouns: She/her
 - ⚡ Fun fact: I love crazy adventures like skydiving, bungee jumping and seeing new places.
 
 <!---
